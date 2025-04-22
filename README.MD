@@ -7,4 +7,4 @@ Undertale by Toby Fox
 
 Ink by Comyet
 
-And many others for the AUs
+(And many others for the various AUs)
